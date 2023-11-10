@@ -1,6 +1,6 @@
 ![Cover](https://github.com/Gustaf-dev-code/Gustaf-dev-code/assets/114838289/2282e0b0-7b85-46e3-a163-5caed62f4558)
 
-### Hi there 👋 I'm Gustav B
+### Hi there 👋 I'm G.B.
 
 💻 I'm degree in electronics, Fullstack Jr. development, Web and Graphic Designer, Cybersecurity Trainee. 💻
 
