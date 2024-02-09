@@ -1,5 +1,4 @@
-![Cover](https://github.com/Gustaf-dev-code/Gustaf-dev-code/assets/114838289/9d06477a-bb01-4576-8e9c-5b07cd11b9ec)
-
+![Portada_Github_2024-02](https://github.com/Gustaf-dev-code/Gustaf-dev-code/assets/114838289/0ca76be6-9a16-450f-b2bf-938f82b902fd)
 
 ### Hi there 👋 I'm G.B.
 
